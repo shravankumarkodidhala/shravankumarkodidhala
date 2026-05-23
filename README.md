@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ Shravankumarkodidhala
-- 👀 I’m in Engineering 2nd year
+- 👀 I’m in Engineering 3nd year
 - 🌱 I’m currently learning AI/ deep learning
 - 💞️ I’m looking to startup my own company
 - 📫 How to reach me @shravankumarkodidhala@gmail.com
